@@ -1,0 +1,2 @@
+# jdnsjdnakjsndkajsndkjaskaryawanxyzgroup
+nfc karyawan
